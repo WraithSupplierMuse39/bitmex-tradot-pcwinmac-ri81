@@ -1,4 +1,4 @@
-# 
+# نهائي BitMEX bot التداول وظائف إضافية for Mac OS | احترافي BitMEX bot التداول وظائف إضافية for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل اللامركزي and واجهة برمجة التطبيقات للتبادل المركزي — optimized for maximum performance.
 
 
 
